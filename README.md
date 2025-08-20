@@ -1,4 +1,4 @@
-
+![image](https://github.com/strawberryfieIds/strawberryfieIds/blob/main/me%20lol.jpg?raw=true)
 
 <!--
 **strawberryfieIds/strawberryfieIds** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
